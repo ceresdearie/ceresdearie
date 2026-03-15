@@ -1,6 +1,7 @@
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-ceresdearie or any claim/skin names
+ceres or any claim/skin names
+
  {🌙} they/them
 
 .𖥔 ݁ ˖🛸── .✦

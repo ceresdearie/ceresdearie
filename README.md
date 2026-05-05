@@ -10,6 +10,10 @@ no strict dni, just please be nice. i will hide if necessary
 
 ★ if you see me in a skin for a fandom you like, please interact! i encourage interaction from people who like the same stuff as me! no fandom dni, if you like the thing my character's from come tell me and we can scream about it together, just please still follow the "be nice" rule
 
+★ c+h encouraged unless dnt/dni in name. i heart being covered i think its comfy!!! dont be scared to it's encouraged, also if you have c+h expect me to disappear behind you :3
+
+★ whispers always open i love people
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 𓂃⸝⸝⟢ mostly offtabbed or in editor at docks

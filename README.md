@@ -4,6 +4,8 @@ ceres or any claim/skin names
 
  {🌙} they/them
 
+ ⟡ im not going to require you to read my classroom introduction icebreaker from the first day of class to interact, this and my strawpage are good info if ur curious abt me but like. lets be so deadass here aint nobody reading allat
+
 .𖥔 ݁ ˖🛸── .✦
 
 no strict dni, just please be nice. i will hide if necessary
